@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... MNCs companies
 - 📫 How to reach me ... vikasdhyani72@gmail.com
 - 😄 Pronouns: ... vikas 
-- ⚡ Fun fact: ... its totaly fun for me bcoz its new for me 
+- ⚡ Fun fact: ... its totally fun for me bcoz its new for me 
 
 <!---
 vikasdhyani72/vikasdhyani72 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
